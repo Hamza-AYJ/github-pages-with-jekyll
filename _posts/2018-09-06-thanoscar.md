@@ -1,3 +1,8 @@
+---
+title: "Xo TrayvonJr"
+date: 2018-09-06
+--- 
+
 LIGMA is part of the BOFA spectrum of conditions. LIGMA (Loose Internal Gene Mi-Asintits) 
 is the second stage of BOFA (Biologically Offset Farkwnian Asintits). In this state, the 
 disease interferes with the immune system and increases the risk of developing common infections 
